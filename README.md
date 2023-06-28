@@ -1,5 +1,5 @@
 # CodeX
-
+[Presentation link](https://www.linkedin.com/feed/update/urn:li:activity:7079833435023847424/)
 
 CodeX is a German beverage company that is aiming to make its mark in the Indian market. A few months ago, they launched their energy drink in 10 cities of India.
 
