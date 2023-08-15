@@ -1,4 +1,4 @@
-![Screenshot (213)](https://github.com/ridhi0228/CodeX/assets/132190698/e79556fa-2ab7-43f2-b043-c6a5f5d761f2)
+
 
 # CodeX
 [Presentation link](https://www.linkedin.com/feed/update/urn:li:activity:7079833435023847424/)
@@ -28,6 +28,7 @@ Their Marketing team is responsible for increasing brand awareness, market share
 
 ![Uploading Screenshot (212).png…]()
 
+![Screenshot (213)](https://github.com/ridhi0228/CodeX/assets/132190698/67321b46-8201-4b75-87d2-7715f2871750)
 
 
 
